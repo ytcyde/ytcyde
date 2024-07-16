@@ -1,2 +1,6 @@
 # This is Cyde
-![b1c209_316_ZFf](https://github.com/user-attachments/assets/d3cdad2a-0a6c-42f0-8515-9af8e9eeaa20)
+![d88dba_317_qkY](https://github.com/user-attachments/assets/4fc684af-2a20-4b83-b2e1-a9b334f6584f)
+
+* I host an archive of Minecraft Auto Clickers & Ghost Clients
+* Idk what else to put here
+![17cec3_318_rLd](https://github.com/user-attachments/assets/197adfed-674a-4215-9118-6d218651dba8)
